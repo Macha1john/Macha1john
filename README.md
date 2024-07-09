@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding 
 - 🌱 I’m currently learning at asana institute of technology
 - 💞️ I’m looking to collaborate on coding programmes
-- 📫 How to reach me johnmachariakjariuki@gmail.com
+- 📫 How to reach me johnmachariakariuki@gmail.com
 - 😄 Pronouns: he/him
 
   
